@@ -1,2 +1,2 @@
 # Projectdemocracy
-i am one.
+But actually i am not the one.
